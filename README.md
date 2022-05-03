@@ -1,4 +1,4 @@
-### Olá seja vem vindo ao meu perdil do GitHub 👋
+### Olá seja vem vindo ao meu perfil do GitHub 👋
 
 <div align="center">
   <a href="https://github.com/GuilhermeOliveira-a">
