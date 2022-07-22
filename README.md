@@ -1,4 +1,4 @@
-### Olá seja vem vindo ao meu perfil do GitHub 👋
+### Hi, Welcome to my GitHub profile 👋
 
 ##
 
